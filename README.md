@@ -2,7 +2,7 @@
 MARKUP Marcaje Marcado Marca Market Marcador Marcar
 Merca Mercar Mercado Mercancia Mercy
 Marco Margen Marcial MarsELLA MARSupial MALTEHadda BATido
-AMATE, La CLAVE, THE KEY isamarte
+AMA®TE, La CLAVE, THE KEY isamarte
 
 
 ® Isaí Ochoa Valverde. | gnuindub@outlook.com
