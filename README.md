@@ -1,8 +1,8 @@
-{ BEG:IN } @ [ END:OR:FINO ] // Inteligencia De Autor
+{ BEG:IN } @ [ END:OR:FINO ] | Inteligencia De Autor
 MARKUP Marcaje Marcado Marca Market Marcador Marcar
 Merca Mercar Mercado Mercancia Mercy
 Marco Margen Marcial MarsELLA MARSupial MALTEHadda BATido
-AMA®TE, La CLAVE, THE KEY isamarte
+AMA®ñTE, La CLAVE, THE KEY isamarte
 
 
 ® Isaí Ochoa Valverde. | gnuindub@outlook.com
@@ -22,9 +22,8 @@ Tiempo|Lugar|Forma, formarse es de ley. hacer fila, igual.
 Seguir la linea, apegado al lineamiento, es usar la guía, path, track, ruta, trazo, etcetcetc
 ------
 Y desde que justificar ya no es ni requerido, pues mejor, dejo lo que no es mio, salgo de donde no pertenezco, entre otras muchas cosas. 
-Total, ¿quien me manda? ...  
+Total, ¿quien me manda? ...
 ------
 Solo por descartar la etiqueta previo al plazo, pues por que luego molesta ... quemar la necesidad de ser socialmente responsable, abre todo un nuevo arsenal de posibilidades.
 -------
-POR ESO CONFIO EN DIOS Y, POR ESA CONFIANZA, NO VA A SALIR, POR QUE POR ALGO ME CONFIÓ LA MISSON.
-#ElRIEL #JahOVI #RAizov #
+POR ESO CONFIO EN DIOS, Y POR ESO CON:FIANZA NO VA A SALIR, POR ALGO ME CONFIÓ LA MISSION
