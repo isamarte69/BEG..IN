@@ -3,8 +3,7 @@ MARKUP Marcaje Marcado Marca Market Marcador Marcar
 Merca Mercar Mercado Mercancia Mercy
 Marco Margen Marcial MarsELLA MARSupial MALTEHadda BATido
 AMA®ñTE, La CLAVE, THE KEY isamarte
-
-
+-------
 ® Isaí Ochoa Valverde. | gnuindub@outlook.com
 -------
 De aquí en delante, está de sobra decir que esto es #ORIGINAL y que 'echo $DUEÑO' imprime el nombre antes escrito. Términos y Condiciones a consideración.
@@ -26,4 +25,4 @@ Total, ¿quien me manda? ...
 ------
 Solo por descartar la etiqueta previo al plazo, pues por que luego molesta ... quemar la necesidad de ser socialmente responsable, abre todo un nuevo arsenal de posibilidades.
 -------
-POR ESO CONFIO EN DIOS, Y POR ESO CON:FIANZA NO VA A SALIR, POR ALGO ME CONFIÓ LA MISSION
+POR ESO CONFIO EN DIOS, Y POR ESO CON:FIANZA NO VA A SALIR, POR ALGO ME CONFIÓ LA MISSION..
